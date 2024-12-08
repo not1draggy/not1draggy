@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @not1draggy
+- 👀 I’m interested in AI and Finance apps
+- 🌱 I’m currently learning C+ and Java Script
+- 📫 How to reach me - Instagram - not.draggy or e-mail draganovsky78@gmail.com
